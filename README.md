@@ -89,8 +89,8 @@ Blueballs Incident V2: https://gamaverse.com/c/f/g/fnf-the-blueballs-incident-fr
 
 Indie Cross V1: https://gamaverse.com/c/f/g/fnf-indie-cross-vs-cuphead-sans-bendy/intro/index.html
 
-Battle For Corrupted Island: https://gamaverse.com/fnf-battle-for-corrupted-island-2-0-battle-for-a-friday-night-disaster-game/
+Battle For Corrupted Island: https://gamaverse.com/c/f/g/fnf-battle-for-corrupted-island-2-0-battle-for-a-friday-night-disaster-game/
 
-Mario's Monday Night Massacre: https://gamaverse.com/fnf-marios-monday-night-massacre-game/
+Mario's Monday Night Massacre: https://gamaverse.com/c/f/g/fnf-marios-monday-night-massacre-game/
 
-Mario FNF Port: https://gamaverse.com/fnf-vs-mario-fnf-port-game/
+Mario FNF Port: https://gamaverse.com/c/f/g/fnf-vs-mario-fnf-port-game/
